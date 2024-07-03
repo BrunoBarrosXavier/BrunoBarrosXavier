@@ -1,1 +1,1 @@
-- 📫 How to reach me: BrunoBarrosXavier@proton.me
+- 📫 How to reach me: brunobxavier@outlook.com.br
